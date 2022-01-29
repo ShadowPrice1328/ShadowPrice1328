@@ -1,16 +1,14 @@
-### Hi there 👋
+## Hi there 👋 It's ShadowPrice1328
 
-<!--
-**ShadowPrice1328/ShadowPrice1328** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### 😶‍🌫️ You may not know me, so below is information about me:
 
-Here are some ideas to get you started:
+- 🌱 I'm currently learning C#
+- 🐒 I'm [Seven]teen
+- 🥴 My name's Anna
+- 🦾 I can't live doing nothing
+- 🤖 I'm phlegmatic and proud of it
+- 🎶 I'm obsessed with music
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### 📫 How to reach me:
+- [Telegram](https://t.me/ihatefizra)
+- [Instagram](https://www.instagram.com/s.anya_3/)
