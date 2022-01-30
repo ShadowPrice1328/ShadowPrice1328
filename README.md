@@ -1,4 +1,4 @@
-## Hi there 👋 It's ShadowPrice1328
+## Hello friends, it's ShadowPrice👋
 
 ### 😶‍🌫️ You may not know me, so below is information about me:
 
