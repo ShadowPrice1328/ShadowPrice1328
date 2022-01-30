@@ -3,8 +3,6 @@
 ### 😶‍🌫️ You may not know me, so below is information about me:
 
 - 🌱 I'm currently learning C#
-- 🐒 I'm [Seven]teen
-- 🥴 My name's Anna
 - 🦾 I can't live doing nothing
 - 🤖 I'm phlegmatic and proud of it
 - 🎶 I'm obsessed with music
