@@ -5,8 +5,8 @@
 - ☠️ I don't speak with russians
 - 🌱 I'm currently learning C#
 - 🦾 I can't live doing nothing
-- 🤖 I'm phlegmatic and proud of it
 - 🎶 I'm obsessed with music
+- ♌♌♑ iykyk!
 
 ### 📫 How to reach me:
 - [Telegram](https://t.me/sennaczyjak)
