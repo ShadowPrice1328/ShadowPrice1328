@@ -9,5 +9,5 @@
 - 🎶 I'm obsessed with music
 
 ### 📫 How to reach me:
-- [Telegram](https://t.me/ihatefizra)
-- [Instagram](https://www.instagram.com/s.anya_3/)
+- [Telegram](https://t.me/sennaczyjak)
+- [Instagram](https://www.instagram.com/madmechanic76/)
