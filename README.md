@@ -7,5 +7,5 @@
 - 🦎 Якщо ж ти звичайний(-а) користувач(ка), то пиши мені в телегу, я люблю нові знайомства!
 
 ### 📫 How to reach me:
-- [Telegram](https://t.me/sennaczyjak)
+- [Telegram](https://t.me/ihatemyspine)
 - [Instagram](https://www.instagram.com/madmechanic76/)
