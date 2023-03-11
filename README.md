@@ -2,8 +2,7 @@
 
 - 🌱 I'm currently learning C#
 - 🗣️ Preferred languages: ukrainian, english, polish
-- 🙄 Don't even try to argue with me
-- 🍃 I'd like to meet new people and kill all my enemies :)
+- 🍃 I'd like to meet new people and kill all ruzzians :)
 - 🦎 Якщо ж ти звичайний(-а) користувач(ка), то пиши мені в телегу, я люблю нові знайомства!
 
 ### 📫 How to reach me:
